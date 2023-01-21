@@ -1,0 +1,1 @@
+# dinamica-day-06
